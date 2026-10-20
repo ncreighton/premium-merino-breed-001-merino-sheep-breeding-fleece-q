@@ -1,0 +1,2 @@
+# premium-merino-breed-001-merino-sheep-breeding-fleece-q
+Tired of guessing which ewe carries the finest micron or losing track of a ram's fleece history across seasons? Your breeding decisions deserve precision, not scribbled notes.  The Merino Sheep Breeding Fleece Quality Tracker brings order to your flock's wool data. Instead of scattered spreadsheets, you get a single Notion dashboard that tracks mic
